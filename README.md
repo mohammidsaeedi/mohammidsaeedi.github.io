@@ -1,2 +1,0 @@
-# mohammidsaeedi.github.io
-MyCV
